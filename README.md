@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Artificial Intelligence**
 
-- 📄 Know about my experiences [https://meldwithai.com](https://meldwithai.com)
+- 📄 Know about my experiences via [resume](https://raw.githubusercontent.com/Aravindkumar-Rajendran/aravindkumar-rajendran/main/Aravind_Kumar_4YoE_AI-ML.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
